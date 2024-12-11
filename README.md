@@ -22,7 +22,7 @@
 
 - 🐤 **Twitter:** [**`@SuckerGM`**](https://twitter.com/SuckerGM)
 
-- 🎮 **Steam HomePage:** [**`My Home Page`**]([https://discord.gg/cGWNG6fFdP](https://steamcommunity.com/id/Rikkias/))
+- 🎮 **Steam HomePage:** [**`My Home Page`**](https://steamcommunity.com/id/Rikkias/)
 
 
 
