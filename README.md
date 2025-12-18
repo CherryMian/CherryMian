@@ -2,7 +2,7 @@
 
 🤟About me:
 
-💼Work: Freelancer.
+💼Work: Currently employed as a network engineer at China Telecom
 
 🎓Education: graduated from Shandong University.
 
